@@ -63,7 +63,7 @@ Also experienced with:
 ---
 
 ### 🌐 My Website
-👉 [https://plevinski.me](https://plevinski.me)
+👉 [https://meir-ops.github.io/portfolio-/](https://meir-ops.github.io/portfolio-/)
 
 ---
 
